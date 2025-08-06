@@ -1,0 +1,2 @@
+# strategicmind-ai
+ Venture studio
